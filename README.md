@@ -1,5 +1,4 @@
-# AMAR PREM KATHA by Archer! any help Contact @archernap at TG
-` Maje Karo Sab `
+# MAJA KARO SAB by Pruthvi! any help Contact @Pruthvi1137 at TG
 
 
 ____RUN THIS CODE In Console___
